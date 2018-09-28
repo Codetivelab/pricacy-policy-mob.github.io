@@ -1,1 +1,0 @@
-# pricacy-policy-mob.github.io
